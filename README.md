@@ -31,8 +31,8 @@
 
 ## 📫 Bana Ulaşın
 
-- 🔗 [LinkedIn: Eslem Yıldırım](https://www.linkedin.com/in/eslemyildirim)  
-- 📧 eslemmy61@@gmail.com
+- 🔗 [LinkedIn: Eslem Yıldırım](www.linkedin.com/in/eslem-yıldırım)
+- 📧 eslemmy61@gmail.com
 
 ---
 
